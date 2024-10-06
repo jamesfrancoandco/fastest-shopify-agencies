@@ -1,4 +1,4 @@
-# Fastest Shopify CRO Agencies
+# Top Shopify CRO Agencies
 
 Many Shopify Plus agencies promise performance fixes, site speed optimization, and conversion rate optimization (CRO) improvements. While they focus on boosting clients' Shopify stores, how do their own websites perform in terms of speed and efficiency? With Google’s PageSpeed Insights, we’ve tested and compiled a list of the fastest Shopify CRO agencies to help you choose a partner that truly practices what they preach.
 
